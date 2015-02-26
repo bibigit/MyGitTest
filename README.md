@@ -1,4 +1,4 @@
 # MyGitTest
-йтсцgit
-windows пч╦днд╪Чпео╒1
+Х╞∙Г■╗git
+windows Д╦┼Д©╝Ф■╧Ф√┤Д╩╤Д©║Ф│╞1
  No newline at end of file
